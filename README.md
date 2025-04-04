@@ -1,2 +1,0 @@
-# astrologyBot
-ghjhgjl
